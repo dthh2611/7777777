@@ -43,7 +43,7 @@
 本站仅提供日本AV免费资源的索引和整理，所有影片均来自公开合法渠道。我们不存储任何影片文件，仅提供资源链接和推荐。请确保在合法框架下观看本站提供的内容。
 
 
-<span style="display:none;">[Canonical link] ( ）</span>
+<span style="display:none;">[Canonical link] ( https://github.com/dthh2611/7777777 ）</span>
 
 
 
